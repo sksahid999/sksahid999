@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'am currently pursuing my btech in cse (3rd year).<br>I'am a freelance video editor .<br>I'am looking to collaborate with creators and devs.<br>I'am looking to help with industry experts like a Mentor.<br>I'am currently learning Graphics Designing & Web Development.<br>Ask Me About<br>
+I'am currently pursuing my btech in cse (3rd year).<br>I'am a freelance video editor .<br>Graphics Designer. <br>I'am looking to collaborate with creators and devs.<br>I'am looking to help with industry experts like a Mentor.<br>I'am currently learning Graphics Designing & Web Development.<br>Ask Me About<br>
 
 
 ## 🌐 Socials:
